@@ -1,1 +1,0 @@
-# atividade-n10-rede-de-computadores-2
